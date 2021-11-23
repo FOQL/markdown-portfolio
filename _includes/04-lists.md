@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. hugs
+2. sunlight
+3. baby creatures
